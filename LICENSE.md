@@ -1,4 +1,4 @@
-# 
+# professional NFT Sniper for nft trading bot | rarity-analysis & auto-sell is the best nft trading bot, featuring rarity-analysis and auto-sell. Fast, smart, and optimized for NFT
 
 
 
